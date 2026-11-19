@@ -1,1 +1,9 @@
-![mrorning](https://cdn.discordapp.com/attachments/1449827300345384960/1568007246393114635/IMG_0166.jpg?ex=6aee400b&is=6aecee8b&hm=b7762c612e34004a2a298d8cd98209f240ec39e7559f52a20cac13d26664338b&)
+please please please read this
+
+i mainly go by kyo but crowley or lucifer is fine !! only vio, kt & salos can call me jeremy/jere u . u
+
+dont rlly have a dni list, but if you purely lust over a character call yoyrself their '#1 fan' just dni for safekeeping -_-" and basic dni criteria
+
+will be mainly in a lucifer skin (not hazbin), WILL use she/her on silent salt & elder faerie ^_^, (probably?) will use she/him on dean & sam <- rlly mixed about pronouns on da bros!
+
+anyone can int !! jst dont be weird u _ u" AND DONT SPOIL SPN!! im only on s5 0n0
