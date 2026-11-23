@@ -1,6 +1,6 @@
 please please please read this
 
-i mainly go by kyo but crowley or lucifer is fine !! only vio, kt & salos can call me jeremy/jere u . u
+i mainly go by kyo but cas or lucifer is fine !! only vio, kt & salos can call me jeremy/jere u . u
 
 dont rlly have a dni list, but if you purely lust over a character & call yoyrself their '#1 fan' just dni for safekeeping -_-" and basic dni criteria. oh! and also dni if you keep using the same stairs joke for dark cacao ^--^ it gets annoying at times
 
